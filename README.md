@@ -9,6 +9,7 @@ Meu nome é: Mariana Carolina Zapata Armas. 🫀
   ### Meu e-mail para contato é 📧
 
   mariana.armas@escola.pr.gov.br
+  ![](https://media.tenor.com/PqJ7yMX9GFoAAAAC/bruce-almighty-comedy.gif)
 
   
 
